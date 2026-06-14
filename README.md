@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently an undergrad student<br>👯 I’m looking to collaborate with a cofounder
+🔭 Currently an undergrad student<br>👯 Looking to collaborate with a cofounder
 
 
 ## 🌐 Socials:
